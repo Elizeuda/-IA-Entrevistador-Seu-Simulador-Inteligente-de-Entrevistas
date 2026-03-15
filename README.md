@@ -1,0 +1,2 @@
+# -IA-Entrevistador-Seu-Simulador-Inteligente-de-Entrevistas
+Assistente Administrativo com experiência na rede de hotéis HPlus em Brasília. Atuação voltada para rotinas administrativas, financeiras e de recursos humanos. Domínio das ferramentas Word e Excel, além de sólidos conhecimentos em finanças e gestão de pessoas. Perfil organizado, colaborativo e com forte habilidade de relacionamento interpessoal
